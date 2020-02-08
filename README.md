@@ -1,0 +1,3 @@
+Wani has developed an entire art subculture devoted to his works.Wani’s art can impact any location at any given moment. Wani has worked with many different types of street art media and street art types. His work includes many powerful that may also be found throughout the Internet as viral images.
+
+Wani began his graffiti art lifestyle by admiring the works of Blek Le Rat and often recycling his old ideas. He has been very active in the graffiti scene since the early 2010.
